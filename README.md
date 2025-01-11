@@ -1,1 +1,0 @@
-# Spannerzidgenerator.com
